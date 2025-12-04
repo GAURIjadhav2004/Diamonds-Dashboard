@@ -1,0 +1,1 @@
+Diamonds-Dashboard charateristics
